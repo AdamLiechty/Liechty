@@ -1,7 +1,14 @@
 # John Liechty
-1825-1895
+April 18, 1825 (France) - May 8, 1895
 
-## Married Catherine Yoder (1831-1903)
+John left Europe March 21, 1855 to come to America, arriving ten days later.
+
+## Married Catherine (Katie) Yoder
+Jan 13, 1831 - June 28, 1903
+
+Lived in Allen County, Indiana, in the house known to many as the "Uncle Dan Liechty home"
+
+John and Catherine are buried in the Yaggy cemetery near Grabill, Indiana.
 
 ### Children
 
