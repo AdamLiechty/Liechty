@@ -23,4 +23,4 @@ Lived at 9907 Lake Shore Drive, Leo, IN 46765
 7. Roberta Arlene (1954-)
 8. Paul Everett (1956-)
 9. Carol Joy (1958-)
-10. Curtis Dwight (1959-)
+10. [Curtis Dwight (1959-)](./Curtis/Curtis-Liechty-1959.md)
