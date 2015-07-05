@@ -1,8 +1,10 @@
-# John Liechty, 1825-1895
+# John Liechty
+1825-1895
 
-## m Catherine Yoder, 1831-1903
+## Married Catherine Yoder (1831-1903)
 
-## Children
+### Children
+
 1. Anna Liechty, 1860-1924
 2. Barbara Liechty, 1861-1926
 3. Jacob Liechty, 1863-1930
