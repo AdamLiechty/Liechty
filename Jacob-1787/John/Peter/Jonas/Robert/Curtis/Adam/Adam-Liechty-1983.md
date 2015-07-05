@@ -16,7 +16,7 @@ wanting to attend a "regular" school, his parents enrolled him at Harlan
 Elementary, a public school nearby.
 
 Adam's father, Curtis (Curt), coached Leo High School's boys cross country and long distance track and field teams,
-and Adam frequently came along for practices and meets in his elementary school, years, attempting to keep up with the high school runners. One of Curt's rules
+and Adam frequently came along for practices and meets in his elementary school years, attempting to keep up with the high school runners. One of Curt's rules
 for his team was that if Adam beat any runner on any given quarter-mile lap
 during a practice, that runner had to run an extra lap. Adam attended Harlan
 Elementary through grade 6, but was able to begin running with the Leo Jr. High
