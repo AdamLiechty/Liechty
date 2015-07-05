@@ -60,7 +60,7 @@ Award in Mathematics in Fort Wayne in 2001.
 
 ## Personal Life
 Adam moved to Seattle, WA in August 2005 to begin his career at Microsoft. His
-brother, [Jacob][jacob], interned and began his career at 343 Industries in Microsoft,
+brother, [Jacob][jacob], interned and began his career at [343 Industries](https://en.wikipedia.org/wiki/343_Industries) in Microsoft,
 working on [Halo 3](https://en.wikipedia.org/wiki/Halo_3) and [Halo 4](https://en.wikipedia.org/wiki/Halo_4), and lived with Adam several times.
 
 Adam met his wife, Lauren, in 2010, and they were married June 26, 2011 at Bridal
