@@ -3,7 +3,7 @@ March 13, 1921 (Grabill, IN) -
 
 ## Married Helen Arlene Kehr April 25, 1943
 ### Helen
-May 18, 1921 (Goshen, IN) - June 13, 1889-1939
+May 18, 1921 (Goshen, IN) - June 13, 1993 (Leo, IN)
 
 Daughter of Jesse and Winnie Singer Kehr. Jesse was a carpenter.
 
