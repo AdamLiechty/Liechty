@@ -12,7 +12,7 @@ Jonas & Addie lived in Leo, IN and were farmers.
 Members of Calvary Temple, Fort Wayne, IN.
 
 ### Children
-1. [Robert J Liechty (1921-)](./Robert/Robert-Liechty-1921.md)
+1. [Robert J Liechty (1921-2017)](./Robert/Robert-Liechty-1921.md)
 2. Edith Marceile Liechty (1922)
 3. Ruth Elaine Liechty (1924)
 4. Morris Jay Liechty (1928)
