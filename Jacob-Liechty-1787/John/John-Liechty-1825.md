@@ -1,7 +1,7 @@
 # John Liechty
 April 18, 1825 (France) - May 8, 1895
 
-John left Europe March 21, 1855 to come to America, embarking by ship on March 31, arriving in New York April 6.
+John left Europe March 21, 1853 to come to America, embarking by ship on March 31, arriving in New York April 6.
 
 ## Married Catherine (Katie) Yoder
 Jan 13, 1831 - June 28, 1903
